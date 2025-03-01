@@ -67,7 +67,7 @@
 ### 📬 Get in Touch  
 💌 **Email:** divyareddychitteti@gmail.com  
 🔗 **LinkedIn:**  https://www.linkedin.com/in/divya-reddy-chitteti-7390331b6/
-🐦 **Twitter/X:** [Your Profile Link Here]  
+ 
 
 ---
 
