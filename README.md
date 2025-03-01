@@ -2,7 +2,7 @@
 
 💻 **Tech Enthusiast | Cybersecurity Geek | AI & ML Explorer | Entrepreneur**  
 
-🌍 Hyderabad | 📩 dr722755@gmail.com  
+🌍 Hyderabad | 📩 divyareddychitteti@gmail.com  
 
 ---
 
